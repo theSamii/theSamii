@@ -1,6 +1,6 @@
 ![Cybersecurity enthusiast](https://yt3.googleusercontent.com/gPkv9XaSIqzamt2xDMGB3PUb1LZ1D7H6mc1cYKesxzw___bxHIoOIYqqgI63O04D8D75dfN6=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj)
 
-### Hi there 👋, I'm Tarif
+### Hi there 👋, I'm Sami
 #### Cybersecurity enthusiast
 
 I am a passionate cybersecurity enthusiast with a strong focus on defensive security, currently learning threat hunting and incident response.
