@@ -1,4 +1,4 @@
-![Cybersecurity enthusiast](https://yt3.googleusercontent.com/gPkv9XaSIqzamt2xDMGB3PUb1LZ1D7H6mc1cYKesxzw___bxHIoOIYqqgI63O04D8D75dfN6=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj)
+![Cybersecurity enthusiast](https://media.licdn.com/dms/image/v2/D4E16AQHVp1Ie9ceKeg/profile-displaybackgroundimage-shrink_350_1400/B4EZjCjOWiHEAc-/0/1755610673663?e=1758758400&v=beta&t=BCX_y7gf3zbczg6fUNLgLJF63gKdivlJqGY4tX1-bm4___bxHIoOIYqqgI63O04D8D75dfN6=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj)
 
 ### Hi there 👋, I'm Sami
 #### Cybersecurity enthusiast
